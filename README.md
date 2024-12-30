@@ -143,8 +143,5 @@ Lavanya Ganesan is a versatile professional with a proven track record of managi
 
 ---
 
-This portfolio is a testament to Lavanya’s project management capabilities across diverse domains. Each project showcases her leadership, strategic planning, and commitment to delivering high-impact results.
-
-\
 
 
